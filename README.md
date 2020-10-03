@@ -1,4 +1,4 @@
-# Hiya, I'm  👋 J L Raj Kumar 
+# Hiya 👋 , I'm  J L Raj Kumar 
 
 - 🔭 I’m currently excelling on Javascript
 - 🌱 I’m currently learning ReactJS
