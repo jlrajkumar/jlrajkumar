@@ -8,4 +8,4 @@
 - ⚡ Pro-tip: Knowledge is Divine! Inorder to GAIN more UNFURL more!!
 
 ## Connect... 🤝🏻 
-[@Linkedin - JLRajkumar](https://www.linkedin.com/in/lakshmana-rajkumar-jaddu)
+[@Linkedin - JLRajkumar](https://www.linkedin.com/in/jlrajkumar/)
